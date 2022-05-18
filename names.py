@@ -1,4 +1,0 @@
-leke
-desmond
-evans
-teacher
